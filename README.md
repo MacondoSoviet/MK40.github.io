@@ -18,7 +18,7 @@ OMEMO加密，怎么开启OMEMO加密？在审核机器人聊天界面，看右�
 # 三、主要的学习书单推荐
 ![image]
 
-https://transfer.acted.org/download/3db57b886be56cf6/#_YAjLipNbPlBLmRBtoyYow
+https://transfer.acted.org/download/b193e50a9a4af8ad/#XGEZdkHYsQo6k-hJ8sbdSg
 学习书单下载链接，点击链接点击下载即可下载资料，请不要随便分享链接，谢谢
 
 1.教员：辩证法唯物论讲授提纲、     
